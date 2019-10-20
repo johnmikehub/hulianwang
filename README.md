@@ -1,4 +1,6 @@
 # hulianwang
+https://hbr.org/magazine
+
 https://www.hbrtaiwan.com/event/BHBRGT002/index.html
 
 
