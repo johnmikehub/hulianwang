@@ -1,5 +1,5 @@
 # hulianwang
-https://send.firefox.com/download/2b34656ca4631750/#qeebt7uEuhaL1W5tM3eeyQ
+https://www.hbrtaiwan.com/event/BHBRGT002/index.html
 
 
 https://github.com/xunyegege/report_gather/issues/1
